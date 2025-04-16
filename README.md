@@ -5,7 +5,7 @@
 - 💞️ I’m dreaming about the day that I can develop the implantable retinal prosthesis and other forms of bionic eyes (still a long long way to go)
 - 😈 I love writing proses to record those marvellous and intriguing moments in my life (I have my own WeChat Official account to post my proses: CQS_CKS2001) and also love hikinig (I have hiked all the country parks in Hong Kong)
 - 🔥 You can reach me via my emails: 
-  - kchan52@jh.edu (There are 51 people start their name with *K* and have a surname of *Chan*, I am the 52th in Hopkins:performing_arts:）
-  - cqs22@mails.tsinghua.edu.cn (Why THU's email is so long:man_with_gua_pi_mao::man_with_gua_pi_mao:...)
-  - u3556373@connect.hku.hk (Alumni of HKUBME XD:mortar_board:)
-  - or zenc2001@gmail.com (constantly use:email:)
+  - kchan52@jh.edu (There are 51 people start their name with *K* and have a surname of *Chan*, I am the 52th in Hopkins）
+  - cqs22@mails.tsinghua.edu.cn (Why THU's email is so long.....)
+  - u3556373@connect.hku.hk (Alumni of HKUBME forever)
+  - or zenc2001@gmail.com (constantly use)
